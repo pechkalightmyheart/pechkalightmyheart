@@ -5,6 +5,8 @@
 
 
 
+the 2nd sntry is for pony dot town
+
 say hai at my guestbook
 
 https://morningstar.123guestbook.com/
