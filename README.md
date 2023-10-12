@@ -6,7 +6,7 @@
 
 https://sntry.cc/helel & https://sntry.cc/nathanielnorwell
 
-the 2nd sntry is just for pony dot town
+the 2nd sntry is for pony dot town stuff
 
 say hai at my guestbook
 
