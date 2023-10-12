@@ -4,6 +4,7 @@
 
 
 
+https://sntry.cc/helel & https://sntry.cc/nathanielnorwell
 
 the 2nd sntry is for pony dot town
 
