@@ -6,7 +6,7 @@
 
 https://sntry.cc/helel & https://sntry.cc/nathanielnorwell
 
-the 2nd sntry is mainly for pony dot town info
+the 2nd link is mainly for pony dot town info
 
 say hai at my guestbook
 
