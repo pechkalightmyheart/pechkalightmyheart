@@ -4,9 +4,9 @@
 
 
 
-https://sntry.cc/helel & https://sntry.cc/nathanielnorwell
+https://sntry.cc/helel
 
-the 2nd link is mainly for pony dot town info
+:33
 
 say hai at my guestbook
 
