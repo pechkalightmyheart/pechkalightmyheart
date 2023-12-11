@@ -6,7 +6,7 @@
 
 about me [here](https://sntry.cc/ephemeralflowers) or [here!](https://sntry.cc/helel)
 
-:33
+mentally ill over hetalia (sorry) and ithaqua idv
 
 say hai at my guestbook
 
