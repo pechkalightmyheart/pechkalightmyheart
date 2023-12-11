@@ -4,7 +4,7 @@
 
 
 
-https://sntry.cc/ephemeralflowers & https://sntry.cc/helel
+about me [here](https://sntry.cc/ephemeralflowers) or [here!](https://sntry.cc/helel)
 
 :33
 
