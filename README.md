@@ -6,7 +6,7 @@
 
 about me [here](https://sntry.cc/ephemeralflowers) and linktree [here](https://linktr.ee/braginsky)
 
-mentally ill over hetalia (sorry) and ithaqua idv
+mentally ill over hetalia (sorry), ithaqua idv, and sherlock holmes
 
 say hai at my guestbook
 
