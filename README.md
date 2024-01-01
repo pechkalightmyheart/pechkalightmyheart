@@ -4,7 +4,7 @@
 
 
 
-about me [here](https://sntry.cc/ephemeralflowers) or [here!](https://sntry.cc/helel)
+about me [here](https://sntry.cc/ephemeralflowers) and linktree [here](https://linktr.ee/braginsky)
 
 mentally ill over hetalia (sorry) and ithaqua idv
 
