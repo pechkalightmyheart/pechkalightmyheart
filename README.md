@@ -4,7 +4,7 @@
 
 
 
-about me [here](https://sntry.cc/ephemeralflowers) and linktree [here](https://linktr.ee/braginsky)
+about me [here](https://sntry.cc/whiteflame) and linktree [here](https://linktr.ee/braginsky)
 
 mentally ill over hetalia (sorry), ithaqua idv, and sherlock holmes
 
