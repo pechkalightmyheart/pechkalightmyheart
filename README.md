@@ -4,9 +4,9 @@
 
 
 
-about me [here](https://sntry.cc/whiteflame) and linktree [here](https://linktr.ee/braginsky)
+about me [here]([https://sntry.cc/whiteflame](https://rentry.co/ephemeralflowers])
 
-mentally ill over hetalia (sorry), ithaqua idv, and sherlock holmes
+i dont play abt hetalia & bg3 !!!11!
 
 say hai at my guestbook
 
