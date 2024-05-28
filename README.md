@@ -4,7 +4,7 @@
 
 
 
-about me [here]([https://rentry.co/ephemeralflowers])
+about me [here](https://rentry.co/ephemeralflowers)
 
 i dont play abt hetalia & bg3 !!!11!
 
