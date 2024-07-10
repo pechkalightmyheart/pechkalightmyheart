@@ -6,10 +6,6 @@
 
 about me [here](https://rentry.co/rusame)
 
-i dont play abt hetalia & bg3 !!!11!
-
-say hai at my guestbook
-
-https://morningstar.123guestbook.com/
+i dont play abt rusame hetalia
 
 ![](https://i.imgur.com/fJeAtKR.jpg)
