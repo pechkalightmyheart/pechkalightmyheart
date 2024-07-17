@@ -8,4 +8,4 @@
 
 
 
-about me [here]([https://rusame.straw.page/])
+about me [here](https://rusame.straw.page/)
