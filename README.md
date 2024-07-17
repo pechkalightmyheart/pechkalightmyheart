@@ -8,4 +8,4 @@
 
 
 
-about me [here](https://rentry.co/rusame)
+about me [here]([https://rentry.co/rusame](https://rusame.straw.page/))
