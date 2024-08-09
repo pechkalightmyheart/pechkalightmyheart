@@ -1,6 +1,8 @@
 <div align="center">
 
-https://rentry.co/helel or https://rentry.co/rusame
+https://rentry.co/helel
+https://rentry.co/rusame
+https://rusame.straw.page/
 
 ![](https://64.media.tumblr.com/9867fcb525ea1156921be1e6c5dbca3c/tumblr_inline_mxtesqKWWa1rrry1n.gif)
 
