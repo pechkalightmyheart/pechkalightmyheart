@@ -2,7 +2,7 @@
 
 ![](https://64.media.tumblr.com/9867fcb525ea1156921be1e6c5dbca3c/tumblr_inline_mxtesqKWWa1rrry1n.gif)
 
-c + h whenever! i love making friends but i'm really bad at talking to people sometimes ^_^ ;; feel free to leave a message on my strawpage!!
+c + h whenever! i love making friends but i'm really bad at talking to people sometimes, though feel free to leave a message on my strawpage!! on safe server i can usually be found near the vtuber area or at campsite while on 18+ i can be found at the hetalia and idv areas respectively ^_^ ;;
 
 ![](https://64.media.tumblr.com/9abfc9d3bb94aaccd14f1379f68a945d/tumblr_inline_n753yi3KwE1rrry1n.png)![](https://64.media.tumblr.com/be2a4c7adf16455770ef46a3e499e780/tumblr_inline_n753yoBSXT1rrry1n.png) ![](https://64.media.tumblr.com/03e98b10d42390ff36b16a3a8cbfeafc/tumblr_inline_mxtkclAGaE1rrry1n.gif) ![](https://64.media.tumblr.com/82bf9e9081ac54ca0de2e3ac8e0e1a4a/tumblr_inline_mxtkcbv7Mn1rrry1n.gif) ![](https://64.media.tumblr.com/961affb69be00a56ca92cd07b97ab5b0/tumblr_inline_mxsg4w2h2M1rrry1n.gif)![](https://64.media.tumblr.com/1e4b4a492884d0bceb241bd3a6b82ee6/tumblr_inline_mxsg46L4bD1rrry1n.gif)
 
